@@ -2,5 +2,6 @@
 
 ### It's Me
 
-Whot from Discord btw
-[AKA 'Whot is a thot'] 
+Whot from Discord
+
+# [My Discord Server](https://discord.gg/qRkbVGE)
